@@ -6,3 +6,4 @@
 - I'm currently reading :books: "A Swim in a Pond in the Rain" by George Saunders.
 - :earth_asia: Born in Shanghai, raised and currently in Texas, with detours in Boston, Chicago, and New York.
 
+<a href="https://www.linkedin.com/in/angela-y-wu111/">LinkedIn for more</a>
